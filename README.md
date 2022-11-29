@@ -1,1 +1,1 @@
-# hrushi
+# Hrishi
